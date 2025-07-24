@@ -1,1 +1,1 @@
-***Help people understandgit
+***Help people undersTAND
